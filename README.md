@@ -1,0 +1,1 @@
+# simandas-jurnal
